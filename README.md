@@ -1,0 +1,1 @@
+# Acum_Medya_Akademi_Yapay_Zeka_Icin_Python
